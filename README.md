@@ -1,1 +1,0 @@
-# sumaqmikuy.github.io
